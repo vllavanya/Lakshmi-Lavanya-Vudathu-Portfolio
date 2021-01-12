@@ -1,1 +1,1 @@
-https://vllavanya.github.io/Lakshmi-Portfolio/
+https://vllavanya.github.io/Lakshmi-Lavanya-Vudathu-Portfolio/
